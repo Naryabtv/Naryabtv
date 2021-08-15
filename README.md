@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Naryabtv
 - 👀 I’m interested in news media entertainment learning creative ideas
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on youtubr
+- 💞️ I’m looking to collaborate on youtube
 - 📫 How to reach me naryabtv@gmail.com
 
 <!---
